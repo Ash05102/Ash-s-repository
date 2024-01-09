@@ -1,1 +1,1 @@
-# Israel-Plestine Conflict Analysis
+# Israel-Palestine Conflict Analysis
